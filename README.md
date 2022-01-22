@@ -1,0 +1,1 @@
+# Umumiy_papka
